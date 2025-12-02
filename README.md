@@ -1,4 +1,8 @@
-## Hi there 👋
+
+
+https://github.com/user-attachments/assets/726c430e-182c-49a7-9752-b2eb81b32064
+
+
 
 <!--
 **Magg0tb3lly/Magg0tb3lly** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
